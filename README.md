@@ -3,4 +3,4 @@
 
 **Course taught by: _https://amigoscode.com/_. Go visit his website.**
 
-user-images.githubusercontent.com/84930146/149617720-b1c1fb94-bf76-4d1e-b61d-434793bc44a6.jpg
+![roman-synkevych-wX2L8L-fGeA-unsplash (1)](https://user-images.githubusercontent.com/84930146/149617868-37af3d3d-e6c2-4962-a339-84fea2656880.jpg)
